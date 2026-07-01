@@ -22,7 +22,7 @@
 ---
 
 ## 📫 Connect with me
-- ✉️ Email: *[arshita2412@gmail.com]*    
+- ✉️ Email: *[arshita20052@gmail.com]*    
 
 ---
 
